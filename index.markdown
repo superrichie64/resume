@@ -24,4 +24,4 @@
 
 ## contact me
 
-[visit me on my twitter](twitter.com/superrichie64)
+[visit me on my twitter](https://x.com/superrichie64)
