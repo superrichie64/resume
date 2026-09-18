@@ -23,3 +23,5 @@
 ## projects
 
 ## contact me
+
+[visit me on my twitter](twitter.com/superrichie64)
