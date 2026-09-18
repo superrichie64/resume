@@ -8,7 +8,7 @@
 
 **reasons i like mega man**
 
-![mega man](download/mega-man.jpg)
+![mega man](images/mega-man.jpg)
 
 1. he's cool
 2. he's blue
