@@ -22,6 +22,8 @@
 
 ## projects
 
+![mega man](Screenshot 2026-04-23 021020.png)
+
 ## contact me
 
 [visit me on my twitter](https://x.com/superrichie64)
